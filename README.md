@@ -21,7 +21,7 @@
 
 - 💬 Ask me about **Data Science, Data Visualization**
 
-- 📫 How to reach me **Zakikhan7785@gmail.com**
+- 📫 How to reach me **kzaki2343@gmail.com**
 
 - 📄 Know about my experiences [https://1drv.ms/b/c/5258942718910b5d/EbptqeujcZxBue8B8QWU2rABMikl4pHX0fMdxYS_z7jtCQ?e=TNLK2x](https://1drv.ms/b/c/5258942718910b5d/EbptqeujcZxBue8B8QWU2rABMikl4pHX0fMdxYS_z7jtCQ?e=TNLK2x)
 
